@@ -1,2 +1,2 @@
 # lovestory
-https://j-jrt.github.io/lovestory/
+https://tuantvtvip.github.io/storylove/
